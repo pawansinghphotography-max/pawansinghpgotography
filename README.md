@@ -1,2 +1,2 @@
-# pawansinghpgotography
+# pawansinghphotography
 Portfolio Built-up Assignments
